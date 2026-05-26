@@ -1,1 +1,0 @@
-an exhaustive research report on the jurisprudence, history, and contemporary application of Al-Mu'allafatu Qulubuhum in Islamic law, detailing its significance in Zakat distribution and its evolution from the Prophetic era to modern applications.
